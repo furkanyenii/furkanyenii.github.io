@@ -1,1 +1,0 @@
-# furkanyenii.github.io
